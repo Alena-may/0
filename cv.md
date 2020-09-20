@@ -4,4 +4,4 @@
 2. Сontacts for communication
     * +375(33)642-87-82
     * alena.may02593@gmail.com
-3. 
+3. English level - А2.
